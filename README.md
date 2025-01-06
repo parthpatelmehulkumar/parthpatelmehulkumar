@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @parthpatelmehulkumar
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning C(master)
+- 💞️ I’m looking to collaborate on Google
+- 📫 How to reach me Contact me on parthpatelb46@gmail.com
+- 😄 Pronouns: Coding is Good :)
+- ⚡ Fun fact: Nothing.
